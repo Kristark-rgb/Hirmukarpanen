@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Hirmukarpanen
-- 👀 I’m interested in Cultism
-- 🌱 I’m currently learning Mind control
-- 💞️ I’m looking to collaborate on Terror of the masses
-- 📫 How to reach me Prayers
+- 👀 I’m interested in: Cultism
+- 🌱 I’m currently learning: Mind control
+- 💞️ I’m looking to collaborate on: Terror of the masses
+- 📫 How to reach me: Prayers
 - 😄 Pronouns: Creepy crawly
 - ⚡ Fun fact: Im a happy boy
 
