@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on: Terror of the masses
 - 📫 How to reach me: Prayers
 - 😄 Pronouns: Creepy crawly
-- ⚡ Fun fact: Im a happy boy
+- ⚡ Fun fact: Im not a happy boy
 
 <!---
 Hirmukarpanen/Hirmukarpanen is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
